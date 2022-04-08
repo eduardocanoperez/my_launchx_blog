@@ -7,15 +7,10 @@ menu:
 
 ## Who am I
 
-Hola, aquí vas a leer un poco sobre mi 🤩
+Hola, aquí vas a leer un poco sobre mi 💪.
 
-> Excidit gente, si orat suo quaeque dura Calydon nata? Pars auro post stetit
-> adfusique imis amplexus. Agmina per fabricator
-> mittere Erymanthon habetque tot.
+- Me llamo Eduardo, tengo 34 años, vivo en la ciudad de merida.
+- EStoy entrando al mundo del desarrollo Web porque pues (yo tambien quiero vivir ese sueño señor pool ❤)
+- Si te pudiera dar un consejo. seria: cuida lo que consumes o de quien consumes en redes sociales.
 
-**Cineres Nile ipsa** origine discurrunt adest Unde, et quem clausus, imo,
-virens quoque tales, potuit. Ingentes insilit corpore nutricis praebebat roganti
-licuit. Denique a vestros adulantum in bella lina parte et arte generi di igitur
-quis, digitis pedes. Cum resonant tamen, namque in anxia. Non nostri trahens
-ancora.
-
+Nos leemos Pronto!!!
